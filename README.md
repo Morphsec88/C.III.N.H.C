@@ -17,6 +17,7 @@ Strategic inquiries & NDA: pakszable@gmail.com)
 
 
 
+<img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/5a44bef5-f96c-4e10-9e10-08082210fc86" />
 
 
 # Project C.III.N.H.C
